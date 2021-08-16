@@ -1,1 +1,0 @@
-Open "Mini-Mini-Show.exe" to play the game.
